@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @pethelp25
+- 👀 I’m interested in providing comprehensive pet guides and resources for all types of furry, feathery, and scaly companions!
+- 🌱 I’m currently learning new ways to improve pet care and well-being.
+- 💞️ I’m looking to collaborate on creating engaging content and building a vibrant community of pet lovers.
+- 📫 How to reach me: Feel free to email me at info@pethelp.com or connect with us on our website [PetHep.com](https://pethep.com/).
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Did you know that there are over 340 breeds of dogs recognized by the Fédération Cynologique Internationale (FCI)?
